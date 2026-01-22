@@ -1,3 +1,4 @@
+　. 　 ˚　.　　 *　　. 　 ˚　.　˚　　. 　 　.　　. 　 　.　.　*　　. 　 ˚　.　　.　　. 　 ˚　.　　. 　 ˚　　　* 　　.　. 　 ˚　.　　* 　　.　*　. 　 ˚　. 　 ˚　.　　 *　　. 　 ˚　.　˚　　. 　 　.　　. 　 　.　.　*　　. 　 ˚　.　　.　　. 　 ˚　.　　. 　 ˚　　　* 　　.　. 　 ˚　.　　* 　　.　*　. 　 ˚
 <p aligh="center">
  <img src="https://i.pinimg.com/originals/2c/bb/ee/2cbbee45d55e98f98c457bb06ff3015a.gif">
 <p aligh="center">    " 𝙏𝙝𝙚 𝙬𝙖𝙮 𝙤𝙛 𝙬𝙖𝙩𝙚𝙧 𝙝𝙖𝙨 𝙣𝙤 𝙗𝙚𝙜𝙞𝙣𝙣𝙞𝙣𝙜 𝙖𝙣𝙙 𝙣𝙤 𝙚𝙣𝙙
