@@ -1,5 +1,4 @@
-<p aligh="center">
-<img src="https://i.pinimg.com/originals/2c/bb/ee/2cbbee45d55e98f98c457bb06ff3015a.gif">
+<p aligh="center"> <img src="https://i.pinimg.com/originals/2c/bb/ee/2cbbee45d55e98f98c457bb06ff3015a.gif">
 
 <!--
 **tsireshii/tsireshii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
