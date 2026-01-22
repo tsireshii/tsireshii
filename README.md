@@ -1,5 +1,5 @@
 <p aligh="center">
- <img width="400" height="342" src="https://i.pinimg.com/originals/2c/bb/ee/2cbbee45d55e98f98c457bb06ff3015a.gif">
+ <img src="https://64.media.tumblr.com/4886f6c7c42ecdfead335f6e40e0c4f8/3ca6d5046e2e2487-6b/s500x750/e97752260a425cc2c9542165f90de2d542dde40e.gif">
 <p aligh="center">    " 𝙏𝙝𝙚 𝙬𝙖𝙮 𝙤𝙛 𝙬𝙖𝙩𝙚𝙧 𝙝𝙖𝙨 𝙣𝙤 𝙗𝙚𝙜𝙞𝙣𝙣𝙞𝙣𝙜 𝙖𝙣𝙙 𝙣𝙤 𝙚𝙣𝙙
 <p aligh="center">      𝙊𝙪𝙧 𝙝𝙚𝙖𝙧𝙩𝙨 𝙗𝙚𝙖𝙩 𝙞𝙣 𝙩𝙝𝙚 𝙬𝙤𝙢𝙗 𝙤𝙛 𝙩𝙝𝙚 𝙬𝙤𝙧𝙡𝙙.
 <p aligh="center">      𝙏𝙝𝙚 𝙨𝙚𝙖 𝙞𝙨 𝙮𝙤𝙪𝙧 𝙝𝙤𝙢𝙚, 𝙗𝙚𝙛𝙤𝙧𝙚 𝙮𝙤𝙪𝙧 𝙗𝙞𝙧𝙩𝙝 𝙖𝙣𝙙 𝙖𝙛𝙩𝙚𝙧 𝙮𝙤𝙪𝙧 𝙙𝙚𝙖𝙩𝙝.
