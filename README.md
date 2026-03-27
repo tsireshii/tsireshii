@@ -1,6 +1,9 @@
-<p aligh="center">
+</div>
+<div align="center">
  
 # ${\textsf{\color{#7affcf}𝓣𝓼𝓲𝓻𝓮𝔂𝓪 °‧ 𓆝 𓆟 𓆞 ·｡ }}$ #
+
+<img src="https://64.media.tumblr.com/6f1e5d35be3f39c7b363130cf2bb615e/11ccc40b46fe2198-83/s1280x1920/2ea977a2911e10ab35d6fc5432ae17cd57378cda.pnj">
  
  . 　 ˚　.　　 *　　. 　 ˚　.　˚　　. 　 　.　　. 　 　.　.　*　　. 　 ˚　.　　.　　. 　 ˚　.　　. 　 ˚　　　* 　　.　. 　 ˚　.　　* 　　.　*　. 　 ˚　. 　 ˚　.　　 *　　. 　 ˚　.　˚　　. 　 　.　　. 　 　.　.　*　　. 　 ˚　.　　.　　. 　 ˚　.　　. 　 ˚　　　* 　　.　. 　 ˚　.　　* 　　.　*　. 　 ˚
  
@@ -13,6 +16,10 @@
 <p aligh="center">      𝙊𝙪𝙧 𝙝𝙚𝙖𝙧𝙩𝙨 𝙗𝙚𝙖𝙩 𝙞𝙣 𝙩𝙝𝙚 𝙬𝙤𝙢𝙗 𝙤𝙛 𝙩𝙝𝙚 𝙬𝙤𝙧𝙡𝙙.
 <p aligh="center">      𝙏𝙝𝙚 𝙨𝙚𝙖 𝙞𝙨 𝙮𝙤𝙪𝙧 𝙝𝙤𝙢𝙚, 𝙗𝙚𝙛𝙤𝙧𝙚 𝙮𝙤𝙪𝙧 𝙗𝙞𝙧𝙩𝙝 𝙖𝙣𝙙 𝙖𝙛𝙩𝙚𝙧 𝙮𝙤𝙪𝙧 𝙙𝙚𝙖𝙩𝙝.
 <p aligh="center">      𝙒𝙖𝙩𝙚𝙧 𝙘𝙤𝙣𝙣𝙚𝙘𝙩𝙨 𝙖𝙡𝙡 𝙩𝙝𝙞𝙣𝙜𝙨: 𝙡𝙞𝙛𝙚 𝙩𝙤 𝙙𝙚𝙖𝙩𝙝, 𝙙𝙖𝙧𝙠𝙣𝙚𝙨𝙨 𝙩𝙤 𝙡𝙞𝙜𝙝𝙩. "
+
+<img src="https://64.media.tumblr.com/15a1ad00e7114bfb7e6635b329c22f4f/c1cc669e42bd057f-5a/s250x400/339cbe3a477e096da46a69e5dde9a9127e588090.pnj"> <img src="https://64.media.tumblr.com/86a125ff9430e86ee44a51da3bb7236d/c1cc669e42bd057f-79/s250x400/e8c3193a6f28dfa0ece0d3a8229664359b64e4c3.pnj">
+
+ <img src="https://64.media.tumblr.com/6f1e5d35be3f39c7b363130cf2bb615e/11ccc40b46fe2198-83/s1280x1920/2ea977a2911e10ab35d6fc5432ae17cd57378cda.pnj">
 <!--
 **tsireshii/tsireshii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
