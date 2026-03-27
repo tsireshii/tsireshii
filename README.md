@@ -4,8 +4,12 @@
 # ${\textsf{\color{#7affcf}𝓣𝓼𝓲𝓻𝓮𝔂𝓪 °‧ 𓆝 𓆟 𓆞 ·｡ }}$ #
 
 <img src="https://64.media.tumblr.com/6f1e5d35be3f39c7b363130cf2bb615e/11ccc40b46fe2198-83/s1280x1920/2ea977a2911e10ab35d6fc5432ae17cd57378cda.pnj">
+
+
+<img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Ftsireshii&label=%E2%9F%A1%E3%85%A4%F0%9D%91%9A%F0%9D%91%92%F0%9D%91%A1%F0%9D%91%98%F0%9D%91%8E%F0%9D%91%A6%F0%9D%91%96%F0%9D%91%9B%F0%9D%91%8E%E3%85%A4%2C%2C%20%E0%AC%B3%20%E2%80%A7%20%E2%82%8A%CB%9A&labelColor=%232ccce4&countColor=%23d9e3f0&style=plastic">
+
  
- . 　 ˚　.　　 *　　. 　 ˚　.　˚　　. 　 　.　　. 　 　.　.　*　　. 　 ˚　.　　.　　. 　 ˚　.　　. 　 ˚　　　* 　　.　. 　 ˚　.　　* 　　.　*　. 　 ˚　. 　 ˚　.　　 *　　. 　 ˚　.　˚　　. 　 　.　　. 　 　.　.　*　　. 　 ˚　.　　.　　. 　 ˚　.　　. 　 ˚　　　* 　　.　. 　 ˚　.　　* 　　.　*　. 　 ˚
+ . 　 ˚　.　　 *　　. 　 ˚　.　˚　　. 　 　.　　. 　 　.　.　*　　. 　 ˚　.　　.　　. 　 ˚　.　　. 　 ˚　　　* 　　.　. 　 ˚　.　　* 　　.　*　. 　 ˚　. 　 ˚　.　　 *　　. 　 ˚　.　˚　　. 　 　.　　. 　 　.　.　*　　. 　 ˚　.　　.　　. 　 ˚　.　　. 　 ˚　　　* 　　.　. 　 ˚　.　　* 　　.
  
 
 <p aligh="center">
