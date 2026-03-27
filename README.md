@@ -21,7 +21,9 @@
 ![tumblr_ff375d041e9a57a8a297182630e6ff6c_33926241_540](https://github.com/user-attachments/assets/02577312-62fb-44c2-b439-db79ee54fce2)
 
 
-<img width="87" height="55"  src="https://64.media.tumblr.com/15a1ad00e7114bfb7e6635b329c22f4f/c1cc669e42bd057f-5a/s250x400/339cbe3a477e096da46a69e5dde9a9127e588090.pnj">                                                                                                    <img width="87" height="55"  src="https://64.media.tumblr.com/86a125ff9430e86ee44a51da3bb7236d/c1cc669e42bd057f-79/s250x400/e8c3193a6f28dfa0ece0d3a8229664359b64e4c3.pnj">
+<img width="87" height="55"  src="https://64.media.tumblr.com/15a1ad00e7114bfb7e6635b329c22f4f/c1cc669e42bd057f-5a/s250x400/339cbe3a477e096da46a69e5dde9a9127e588090.pnj">                                                                                                 <img width="87" height="55"  src="https://64.media.tumblr.com/86a125ff9430e86ee44a51da3bb7236d/c1cc669e42bd057f-79/s250x400/e8c3193a6f28dfa0ece0d3a8229664359b64e4c3.pnj">
+
+<p aligh="center">    <img src="https://pixels.crd.co/assets/images/gallery18/7dc466f8.gif?v=29416114">ㅤ𑣲 ι ᥣovᥱ mყ bf ˚. ᵎᵎㅤ<img src="https://pixels.crd.co/assets/images/gallery23/fb8555af.gif?v=29416114">
 
  <img src="https://64.media.tumblr.com/6f1e5d35be3f39c7b363130cf2bb615e/11ccc40b46fe2198-83/s1280x1920/2ea977a2911e10ab35d6fc5432ae17cd57378cda.pnj">
 <!--
