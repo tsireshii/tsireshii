@@ -1,7 +1,5 @@
 </div>
 <div align="center">
- 
-# ${\textsf{\color{#5ddcfc}𝓣𝓼𝓲𝓻𝓮𝔂𝓪 °‧ 𓆝 𓆟 𓆞 ·｡ }}$ #
 
 <img src="https://64.media.tumblr.com/6f1e5d35be3f39c7b363130cf2bb615e/11ccc40b46fe2198-83/s1280x1920/2ea977a2911e10ab35d6fc5432ae17cd57378cda.pnj">
 ㅤ
